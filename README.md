@@ -10,9 +10,7 @@ Benefits 
 
 -   A shop company can gain directly from the sale of the vouchers 
 
--   exclusivity
-
--   Customers are obliged to use their voucher at your shop 
+-   exclusivity: Customers are obliged to use their voucher at your shop 
 
 -   Local Cooperation
 
